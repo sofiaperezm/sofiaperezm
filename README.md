@@ -1,4 +1,4 @@
-### Hi, My name is Sofía Pérez 👋🏼
+### Hi, my name is Sofía Pérez 👋🏼
 
 
 
